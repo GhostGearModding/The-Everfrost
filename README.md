@@ -1,1 +1,1 @@
-### Mod by UltrusBot
+### The Everfrost
